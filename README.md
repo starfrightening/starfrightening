@@ -5,6 +5,7 @@
 
 ![k](https://i.imgur.com/Jzftik4.gif)
 
+
 <p align="center">🫀 ᶻ 𝗓 𐰁 </p>
 
 <p align="right">         𝒜.ℛ ;</p>
