@@ -6,11 +6,11 @@
 ![k](https://i.imgur.com/Jzftik4.gif)
 
 ***
-<p align="center">💤</p>
+<p align="center">🩸</p>
 
 <p align="right">         𝒯.𝒱.𝒟 ;</p>
 <p align="right">𝑰 𝒓𝒆𝒇𝒖𝒔𝒆 𝒕𝒐 𝒂𝒄𝒄𝒆𝒑𝒕 </p>
-<p align="right">𝒕𝒉𝒆 𝒆𝒙𝒊𝒔𝒕𝒆𝒏𝒄𝒆 𝒐𝒇 𝑮𝒐𝒅! 𑁍ࠬܓ </p>
+<p align="right">𝒕𝒉𝒆 𝒆𝒙𝒊𝒔𝒕𝒆𝒏𝒄𝒆 𝒐𝒇 𝑮𝒐𝒅! ཀ </p>
 
 ![tanya](https://i.imgur.com/fZGmAhC.jpeg)
    𓊔        [新𝒃𝒐𝒐𝒌](https://stainedbutflawless.atabook.org/)
