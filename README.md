@@ -22,6 +22,10 @@
   </a>
 </p>
 
+                                          
+⇄              ◁◁  I I  ▷▷          ↻
+           ⁰⁰ ²⁵ ━━●━━━━━━━━ ⁰² ⁰⁸
+
 ![kit](https://i.imgur.com/Jzftik4.gif)
 
 ![borderdown](https://i.imgur.com/rsUUB2e.png)
