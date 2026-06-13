@@ -10,7 +10,7 @@
 𝓩 ; 𝑨𝒏𝒅 𝑰...? 𝑯𝒐𝒏𝒆𝒔𝒕𝒍𝒚 𝒔𝒕𝒐𝒑𝒑𝒆𝒅 𝒄𝒂𝒓𝒊𝒏𝒈. 𑁍ࠬܓ
 
 ![rimbaud](https://i.imgur.com/dckqgUR.jpeg)
-<P align="center"> [新𝒃𝒐𝒐𝒌](https://stainedbutflawless.atabook.org/?page=1) </P>
+   𓊔        [新𝒃𝒐𝒐𝒌](https://stainedbutflawless.atabook.org/)
 
 <p align="center"> /•᷅‎‎•᷄\੭ </p>
 
