@@ -14,7 +14,7 @@
 
 <p align="center"> /•᷅‎‎•᷄\੭ </p>
 
-![ki](https://i.imgur.com/Jzftik4.gif)
+<p align="center"> ୧‿̩͙ ˖︵ ꕀ⠀ ♱⠀ ꕀ ︵˖ ‿̩͙୨ </p>
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
@@ -23,9 +23,7 @@
 </p>
 
                                           
-⇄              ◁◁  I I  ▷▷          ↻
-           ⁰⁰ ²⁵ ━━●━━━━━━━━ ⁰² ⁰⁸
-
-![kit](https://i.imgur.com/Jzftik4.gif)
+<p align="center">⇄          ◁◁  I I  ▷▷          ↻ </p> 
+<p align="center">⁰⁰ ²⁵ ━━●━━━━━━━━ ⁰² ⁰⁸ </p>
 
 ![borderdown](https://i.imgur.com/rsUUB2e.png)
