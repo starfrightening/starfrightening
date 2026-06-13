@@ -7,7 +7,8 @@
 
 <p align="center">🫀 ᶻ 𝗓 𐰁 </p>
 
-<p align="right">𝒜.ℛ    ;    𝑰'𝒎 𝒕𝒉𝒆 𝒎𝒂𝒏 𝒘𝒉𝒐 𝒔𝒂𝒗𝒆𝒅 𝒚𝒐𝒖. </p>
+<p align="right">         𝒜.ℛ ;    
+<p align="right"𝑰'𝒎 𝒕𝒉𝒆 𝒎𝒂𝒏 𝒘𝒉𝒐 𝒔𝒂𝒗𝒆𝒅 𝒚𝒐𝒖. </p>
 <p align="right">𝑰 𝒈𝒓𝒂𝒏𝒕𝒆𝒅 𝒚𝒐𝒖 𝒉𝒖𝒎𝒂𝒏 𝒍𝒊𝒇𝒆. 𑁍ࠬܓ </p>
 
 ![rimbaud](https://i.imgur.com/dckqgUR.jpeg)
