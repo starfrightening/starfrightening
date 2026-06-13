@@ -1,4 +1,4 @@
-![borderup](https://i.imgur.com/rsUUB2e.png)
+![borderup](https://i.imgur.com/stHboff.png)
 
 <p align="center">༄  𝖈*𝖍 𝖊𝖓𝖈  </p>
 <p align="center">ᴵ ᵐⁱᵍʰᵗ ⁿᵒᵗ ᵗᵃˡᵏ ᵐᵘᶜʰ </p>
@@ -29,4 +29,4 @@
 <p align="center">⇄          ◁◁  I I  ▷▷          ↻ </p> 
 <p align="center">⁰⁰ ²⁵ ━━●━━━━━━━━ ⁰² ⁰⁸ </p>
 
-![borderdown](https://i.imgur.com/rsUUB2e.png)
+![borderdown](https://i.imgur.com/stHboff.png)
