@@ -3,7 +3,7 @@
 <p align="center"> ༄  𝖈*𝖍 𝖊𝖓𝖈  </p>
 <p align="center"> ᴵ ᵐⁱᵍʰᵗ ⁿᵒᵗ ᵗᵃˡᵏ ᵐᵘᶜʰ </p>
 
-[k](https://i.imgur.com/Jzftik4.gif)
+![k](https://i.imgur.com/Jzftik4.gif)
 
 <p align="center"> 🫀 ᶻ 𝗓 𐰁 </p>
 
@@ -14,7 +14,7 @@
 
 <p align="center"> /•᷅‎‎•᷄\੭ </p>
 
-[ki](https://i.imgur.com/Jzftik4.gif)
+![ki](https://i.imgur.com/Jzftik4.gif)
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
@@ -22,6 +22,6 @@
   </a>
 </p>
 
-[kit](https://i.imgur.com/Jzftik4.gif)
+![kit](https://i.imgur.com/Jzftik4.gif)
 
 ![borderdown](https://i.imgur.com/rsUUB2e.png)
