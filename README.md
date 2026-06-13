@@ -1,13 +1,13 @@
 ![borderup](https://i.imgur.com/rsUUB2e.png)
 
-<p align="center"> ༄  𝖈*𝖍 𝖊𝖓𝖈  </p>
-<p align="center"> ᴵ ᵐⁱᵍʰᵗ ⁿᵒᵗ ᵗᵃˡᵏ ᵐᵘᶜʰ </p>
+<p align="center">༄  𝖈*𝖍 𝖊𝖓𝖈  </p>
+<p align="center">ᴵ ᵐⁱᵍʰᵗ ⁿᵒᵗ ᵗᵃˡᵏ ᵐᵘᶜʰ </p>
 
 ![k](https://i.imgur.com/Jzftik4.gif)
 
-<p align="center"> 🫀 ᶻ 𝗓 𐰁 </p>
+<p align="center">🫀 ᶻ 𝗓 𐰁 </p>
 
-𝓩 ; 𝑨𝒏𝒅 𝑰...? 𝑯𝒐𝒏𝒆𝒔𝒕𝒍𝒚 𝒔𝒕𝒐𝒑𝒑𝒆𝒅 𝒄𝒂𝒓𝒊𝒏𝒈. 𑁍ࠬܓ
+<p align="right">𝓩 ; 𝑨𝒏𝒅 𝑰...? 𝑯𝒐𝒏𝒆𝒔𝒕𝒍𝒚 𝒔𝒕𝒐𝒑𝒑𝒆𝒅 𝒄𝒂𝒓𝒊𝒏𝒈. 𑁍ࠬܓ </p>
 
 ![rimbaud](https://i.imgur.com/dckqgUR.jpeg)
    𓊔        [新𝒃𝒐𝒐𝒌](https://stainedbutflawless.atabook.org/)
