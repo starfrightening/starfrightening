@@ -14,6 +14,9 @@
 
 ![rimbaud](https://i.imgur.com/dckqgUR.jpeg)
    𓊔        [新𝒃𝒐𝒐𝒌](https://stainedbutflawless.atabook.org/)
+***
+**
+*
 
 <p align="center"> /•᷅‎‎•᷄\੭ </p>
 
