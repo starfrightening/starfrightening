@@ -5,7 +5,7 @@
 
 ![k](https://i.imgur.com/Jzftik4.gif)
 
-
+***
 <p align="center">💤</p>
 
 <p align="right">         𝒜.ℛ ;</p>
@@ -15,8 +15,6 @@
 ![rimbaud](https://i.imgur.com/dckqgUR.jpeg)
    𓊔        [新𝒃𝒐𝒐𝒌](https://stainedbutflawless.atabook.org/)
 ***
-**
-*
 
 <p align="center"> /•᷅‎‎•᷄\੭ </p>
 
